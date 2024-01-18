@@ -1,1 +1,1 @@
-# Boostcoarse_AI-
+# Boostcoarse_AI-engineers-precourse
